@@ -1,2 +1,1 @@
-![Image](https://github.com/user-attachments/assets/da911195-54c8-4767-9ebf-4594647837aa)
-(https://github.com/user-attachments/assets/0310ad7b-ce4e-4eac-9527-79f1692202b3)
+[cinnamon-2025-03-02T163657+0500.webm](https://github.com/user-attachments/assets/1042d8b0-9e59-430d-9b10-cf743279677e)
